@@ -4,5 +4,6 @@
 - 📫 How to reach me:-
   LinkedIn: https://www.linkedin.com/in/waleed-emad-a8965b240
   Facebook:https://www.facebook.com/waled.emad.129?mibextid=ZbWKwL
-  Gmail: waleedemad797@gmail.com
+
+Gmail: waleedemad797@gmail.com
   Instagram:https://instagram.com/walidemad9?utm_source=qr&igshid=MzNlNGNkZWQ4Mg%3D%3D
